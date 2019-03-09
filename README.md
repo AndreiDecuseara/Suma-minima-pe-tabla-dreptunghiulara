@@ -1,0 +1,1 @@
+# Suma-minima-pe-tabla-dreptunghiulara
